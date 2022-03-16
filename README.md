@@ -1,1 +1,0 @@
-# DTSxProgate-Team-Project
